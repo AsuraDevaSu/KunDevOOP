@@ -22,4 +22,4 @@
 - He/Him  
 
 ### ⚡ Fun fact
-- My code can be here cause AI.
+- My code my choice.
